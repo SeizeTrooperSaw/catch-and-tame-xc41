@@ -1,4 +1,4 @@
-#  
+#  life together rp Script professional is the best life together rp Script, featuring silent aim and no clip. Safe and powerful for all your needs.
 
 
 
